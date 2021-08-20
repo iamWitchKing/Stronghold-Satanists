@@ -1,4 +1,5 @@
 # Stronghold-Satanists Vampires And Draculs by Sinister Witch King
+![New AI Lords](https://github.com/iamWitchKing/Stronghold-Satanists/blob/main/Website-WitchKing.Mn.Co.jpg?raw=true)
 Hello World\
 Hello Everyone\
 𝚃𝚑𝚒𝚜 G𝚊𝚖𝚎 𝚠𝚒𝚕𝚕 𝚜𝚝𝚊𝚢 𝚖𝚎𝚖𝚘𝚛𝚒𝚊𝚕 𝚋𝚢 **𝚆𝚒𝚝𝚌𝚑 𝙺𝚒𝚗𝚐 𝚂𝚒𝚗𝚒𝚜𝚝𝚎𝚛**.
@@ -69,6 +70,7 @@ And also 𝚌𝚊𝚗 **𝙹𝚘𝚒𝚗** 𝚖𝚢 𝙼𝚊𝚒𝚗 𝙲𝚑�
 ☆𝙰𝚗𝚍 𝙼𝚘𝚛𝚎 𝙲𝚑𝚊𝚗𝚐𝚎𝚜 𝙸𝚗𝚌𝚘𝚖𝚒𝚗𝚐 𝚊𝚜 𝚂𝚘𝚘𝚗 𝚊𝚜 𝙿𝚘𝚜𝚜𝚒𝚋𝚕𝚎☆\
 •••••••••••••••••••••••••
 
+![New AI Lords](https://github.com/iamWitchKing/Stronghold-Satanists/blob/main/Email-iamWitchKing%40OutLook.Com.jpg?raw=true)
 ## Authors
 
 - [Sinister Dark Overlord Witch King Hacker](https://www.github.com/iamWitchKing)
